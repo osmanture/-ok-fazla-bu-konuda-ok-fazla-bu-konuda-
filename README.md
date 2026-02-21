@@ -1,1 +1,9 @@
-# -ok-fazla-bu-konuda-ok-fazla-bu-konuda-
+.
+.
+.
+.
+
+.
+
+.
+.# -ok-fazla-bu-konuda-ok-fazla-bu-konuda-
